@@ -1,2 +1,2 @@
 #status
-Slightly confused but getting there
+Resolved conflict and got happier about it. 
